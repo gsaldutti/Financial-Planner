@@ -1,5 +1,5 @@
 
-## This Homework is Due: Saturday Janruary 8, 2022
+## This Homework is Due: Saturday January 8, 2022
 
 
 # Unit 5 - Financial Planning
